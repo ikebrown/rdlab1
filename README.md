@@ -16,3 +16,7 @@ il veulr le moindre,le plus bas prix apour une travail de qualitee
 #      mrede one
  #     enfin une belle journee
 ####    enfin de compte
+  knappe 
+ verstehen knapper 
+    drueknufpee
+     du scal a comprend comme le chose marcheh 
